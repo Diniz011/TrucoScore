@@ -1,4 +1,4 @@
-♦️ TrucoScore – Acompanhe e Domine o Jogo! ♣️🔥
+♦️ TrucoScore – Acompanhe e Domine o Jogo! ♣️
 
 
 Chega de anotar os pontos no papel! Com o TrucoScore, você tem um placar digital completo para suas partidas de Truco 📊
